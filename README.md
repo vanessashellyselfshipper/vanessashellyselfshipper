@@ -1,16 +1,13 @@
-## Hi there 👋
+WIP !!!
+<p align="center">  MAX  ♡ 
+no pronouns ♡ 22 years old ♡ osdd + ocd + autism + who knows </p>　
 
-<!--
-**vanessashellyselfshipper/vanessashellyselfshipper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img src="[IMAGELINKHERE](https://github.com/vanessashellyselfshipper/vanessashellyselfshipper/blob/main/asfsdfasdf.png)" />
+</p>
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">i don't know what to say most of the time but i don't mind talking to people, just whisper and i'll notice it eventually! might take me a while to answer. </p>
 
-Here are some ideas to get you started:
+<p align="center">i unpredictably bounce from being manic to 0 energy & dry. don't take my tone personally!　</p>
+<p align="center">if it wasn't obvious, i selfship with vanessa shelly and i'm nonsharing so i'd prefer to not see her sexualized or stuff like that. love to hear ppl praise her platonically tho <3　</p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">you can find my more important links on the side !!  </p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
