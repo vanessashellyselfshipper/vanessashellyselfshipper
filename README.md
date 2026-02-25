@@ -3,7 +3,7 @@ WIP !!!
 no pronouns ♡ 22 years old ♡ osdd + ocd + autism + who knows </p>　
 
 <p align="center">
-  <img src="[IMAGELINKHERE][([https://github.com/vanessashellyselfshipper/vanessashellyselfshipper/blob/main/asfsdfasdf.png])]" />
+  <img src="[https://github.com/vanessashellyselfshipper/vanessashellyselfshipper/blob/main/asfsdfasdf.png?raw=true]" />
 </p>
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">i don't know what to say most of the time but i don't mind talking to people, just whisper and i'll notice it eventually! might take me a while to answer. </p>
 
