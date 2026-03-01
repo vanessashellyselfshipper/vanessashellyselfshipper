@@ -1,6 +1,6 @@
 ## WIP !!!
 <p align="center">  MAX  ♡ 
-no pronouns ♡ <ins>22</ins> ♡ osdd + ocd + autism + who knows </p>　
+no pronouns ♡ 22 ♡ osdd + <ins>ocd</ins> + autism + who knows </p>　
 
 <p align="center">
 <img src=https://github.com/vanessashellyselfshipper/vanessashellyselfshipper/blob/main/asfsdfasdf.png?raw=true />
