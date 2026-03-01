@@ -3,6 +3,7 @@
 no pronouns ♡ 22 years old ♡ osdd + ocd + autism + who knows </p>　
 
 <p align="center">
+<img src="<img width="275" height="312" alt="image" src="https://github.com/user-attachments/assets/a96022c8-d71a-4855-b684-1edf95f9ec7e" />
 
 </p>
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center">i don't know what to say most of the time but i don't mind talking to people, just whisper and i'll notice it eventually! might take me a while to answer. </p>
