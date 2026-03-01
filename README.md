@@ -1,6 +1,6 @@
 ## WIP !!!
 <p align="center">  MAX  ♡ 
-no pronouns ♡ 22 years old ♡ osdd + ocd + autism + who knows </p>　
+no pronouns ♡ 22 (<ins>2003/07/15</ins>) ♡ osdd + ocd + autism + who knows </p>　
 
 <p align="center">
 <img src=https://github.com/vanessashellyselfshipper/vanessashellyselfshipper/blob/main/asfsdfasdf.png?raw=true />
