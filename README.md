@@ -7,7 +7,7 @@ no pronouns ♡ 22 ♡ osdd + <ins>ocd</ins> + autism + who knows </p>　
 
 </p>
 i don't know what to say most of the time but i don't mind talking to people, just whisper and i'll notice it eventually! might take me a while to answer. 
-if your pony is of any of my f/os i'll probably spam boop/kiss & linger around you let me know if this makes you uncomfortable. </p>
+**if your pony is of any of my f/os i'll probably spam boop/kiss & linger around you** let me know if this makes you uncomfortable. </p>
 
 i unpredictably bounce from being manic to 0 energy & dry. don't take my tone personally!
 
