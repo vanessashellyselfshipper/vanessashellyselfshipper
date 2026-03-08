@@ -1,5 +1,5 @@
 ## WIP !!!
-<p align="center">  MAX  ♡ 
+<p align="center">  MAX/Clove +  ♡ 
 no pronouns ♡ 22 ♡ osdd + <ins>ocd</ins> + autism + who knows </p>　
 
 <p align="center">
