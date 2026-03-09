@@ -1,5 +1,5 @@
 ## WIP !!!
-<p align="center">  MAX/CLOVE [+](https://pronouns.cc/@cyberwolf) ♡ 
+<p align="center">  MAX/CLOVE (+)[https://pronouns.cc/@cyberwolf] ♡ 
 no pronouns ♡ 22 ♡ osdd + <ins>ocd</ins> + autism + who knows </p>　
 
 <p align="center">
