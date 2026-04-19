@@ -13,4 +13,4 @@ i unpredictably bounce from being manic to 0 energy & dry. don't take my tone pe
 
 i switch around my names a lot. i don't care what you refer to me as but usually what's set as my display name is preferred.　　　　　　　　　　　　　　　　　　　　　　　　　
 
-i'm nonsharing with so mi, vanessa & mina so please don't talk about cc ships to me !
+## i'm nonsharing with so mi, vanessa & mina so please don't talk about cc ships to me !
