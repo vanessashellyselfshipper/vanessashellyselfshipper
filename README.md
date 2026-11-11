@@ -1,5 +1,5 @@
 ## WIP !!!
-<p align="center">  MAX/MANGLE <a href="https://pronouns.cc/@cyberwolf" target="_blank">+</a> ♡ 
+<p align="center">  V/MAX/MANGLE <a href="https://pronouns.cc/@cyberwolf" target="_blank">+</a> ♡ 
 no pronouns ♡ 22 ♡ osdd + <ins>ocd</ins> + autism + who knows </p>　
 
 <p align="center">
@@ -14,4 +14,4 @@ i unpredictably bounce from being manic to 0 energy & dry. don't take my tone pe
 i switch around my names a lot. i don't care what you refer to me as but usually what's set as my display name is preferred.　　　　　　　　　　　　　　　　　　　　　　　　　
 
 ## i'm nonsharing with so mi, vanessa & mina so please don't talk about cc ships to me !
-(unless it is mina x viscous i love goobat cause i'm viscous.)
+(unless it is mina x viscous or mina x violet cause i'm viscous and violet.)
