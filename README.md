@@ -12,7 +12,7 @@ if your pony is of any of my f/os i'll probably spam boop/kiss & linger around y
 i unpredictably bounce from being manic to 0 energy & dry. don't take my tone personally!
 
 i switch around my names a lot. i don't care what you refer to me as but usually what's set as my display name is preferred.
-i'm a violet (deadlock) copinglink which means i take comfort in kinning her, not delusional attachment.
+i'm a violet (deadlock) copinglink which means i cope by kinning her, not delusional attachment.
 
 ## i'm nonsharing with so mi, vanessa & mina so please don't talk about cc ships to me !
 (unless it is mina x viscous or mina x violet cause i'm viscous and violet.)
