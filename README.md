@@ -1,6 +1,6 @@
 ## WIP !!!
 <p align="center">  V/MAX/MANGLE <a href="https://pronouns.cc/@cyberwolf" target="_blank">+</a> ♡ 
-no pronouns ♡ 22 ♡ osdd + <ins>ocd</ins> + autism + who knows </p>　
+no pronouns ♡ 23 ♡ osdd + <ins>ocd</ins> + autism + who knows ♡ violet deadlock copinglink </p>　
 
 <p align="center">
 <img src=https://github.com/vanessashellyselfshipper/vanessashellyselfshipper/blob/main/asfsdfasdf.png?raw=true />
